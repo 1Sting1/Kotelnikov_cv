@@ -1,1 +1,0 @@
-# Kotelnikov_cv
